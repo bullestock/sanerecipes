@@ -3,22 +3,22 @@ From https://www.goodhousekeeping.com/food-recipes/a15666/carrot-cranberry-pecan
 Ingredients
 ===========
 
-60 g wheat bran
-120 g whole-wheat flour
-100 g granulated sugar
-1 tsp. baking powder
-1/2 tsp. baking soda
-1/2 tsp. ground cinnamon
-1 pinch salt
-250 g unsweetened applesauce
-2.5 dl buttermilk
-0.5 dl olive oil
-1 large egg
-100 g dried cranberries
-60 g carrot, grated
-110 g parsnip, grated
-2 tsp. finely grated fresh ginger
-125 g pecans
+- 60 g wheat bran
+- 120 g whole-wheat flour
+- 100 g granulated sugar
+- 1 tsp. baking powder
+- 1/2 tsp. baking soda
+- 1/2 tsp. ground cinnamon
+- 1 pinch salt
+- 250 g unsweetened applesauce
+- 2.5 dl buttermilk
+- 0.5 dl olive oil
+- 1 large egg
+- 100 g dried cranberries
+- 60 g carrot, grated
+- 110 g parsnip, grated
+- 2 tsp. finely grated fresh ginger
+- 125 g pecans
 
 Preparation
 ===========
