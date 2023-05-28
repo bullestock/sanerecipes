@@ -7,7 +7,7 @@ Ingredients
 - 240 g whole wheat flour
 - 100 g old-fashioned oats
 - ¼ teaspoon Salt
-- 130 g brown sugar
+- 100 g brown sugar
 - 1 large egg
 - 100 g melted butter
 - 3 tablespoons milk
