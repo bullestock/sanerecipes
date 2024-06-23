@@ -8,9 +8,9 @@ Ingredients
 - ½ teaspoon salt
 - ½ teaspoon baking soda
 - 1 large egg
-- 2 dl plain nonfat Greek yogurt
-- 70 ml coconut oil cooled slightly
-- 70 ml cup water
+- 200 g plain nonfat Greek yogurt
+- 55 g coconut oil cooled slightly
+- 70 g water
 - 3 tablespoons pure maple syrup or agave nectar
 - 1 teaspoon pure vanilla extract
 - 90 g old-fashioned oats
