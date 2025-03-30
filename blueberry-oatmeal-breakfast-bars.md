@@ -10,9 +10,9 @@ Ingredients
 - 1/2 tsp cinnamon
 - 1/4 tsp salt
 - 3 eggs
-- 115 ml (almond) milk
+- 100 ml (almond) milk
 - 55 g coconut oil, melted and cooled slightly
-- 75 g honey
+- 50 g syrup
 - 1 1/2 tsp vanilla
 - 160 g frozen blueberries
 
