@@ -10,7 +10,7 @@ Ingredients
 - 1/2 tsp cinnamon
 - 1/4 tsp salt
 - 3 eggs
-- 100 ml (almond) milk
+- 110 ml (almond) milk
 - 55 g coconut oil, melted and cooled slightly
 - 50 g syrup
 - 1 1/2 tsp vanilla
