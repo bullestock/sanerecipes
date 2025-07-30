@@ -5,32 +5,32 @@ Ingredients
 
 **Tangzhong**
 
-40 g flour
-80 g milk
-80 g water
+- 40 g flour
+- 80 g milk
+- 80 g water
 
 **Dough**
 
-375 g flour
-25 g yeast
-8 g salt
-20 g sugar
-1 tsp skimmed milk powder
-1 egg
-60 g milk
-20 g water
-40 g butter (softened)
+- 375 g flour
+- 25 g yeast
+- 8 g salt
+- 20 g sugar
+- 1 tsp skimmed milk powder
+- 1 egg
+- 60 g milk
+- 20 g water
+- 40 g butter (softened)
 
 **Egg wash**
 
-1 egg
-1 tsp cold water
-A pinch of table salt
+- 1 egg
+- 1 tsp cold water
+- A pinch of table salt
 
 **To finish**
 
-20 g butter (melted)
-Sea salt
+- 20 g butter (melted)
+- Sea salt
 
 Instructions
 ============
