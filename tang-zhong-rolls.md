@@ -37,7 +37,7 @@ Instructions
 
 - Prepare tang zhong in microwave. Let cool.
 - Dissolve yeast in lukewarm milk and water.
-- Add sugar, salt, milk powder and tang zhong.
+- Add sugar, salt, milk powder, egg, and tang zhong.
 - Add in flour. Mix for 5 minutes.
 - Add softened butter, mix for 5-10 minutes.
 - Let dough rise to double size (45-90 minutes).
