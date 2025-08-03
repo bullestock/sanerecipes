@@ -11,14 +11,14 @@ Ingredients
 
 **Dough**
 
-- 375 g flour
+- 60 g milk
+- 20 g water
 - 25 g yeast
 - 8 g salt
 - 20 g sugar
 - 1 tsp skimmed milk powder
 - 1 egg
-- 60 g milk
-- 20 g water
+- 375 g flour
 - 40 g butter (softened)
 
 **Egg wash**
