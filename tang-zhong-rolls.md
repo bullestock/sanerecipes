@@ -16,7 +16,7 @@ Ingredients
 - 25 g yeast
 - 8 g salt
 - 20 g sugar
-- 1 tsp skimmed milk powder
+- 1 tbsp skimmed milk powder
 - 1 egg
 - 375 g flour
 - 40 g butter (softened)
