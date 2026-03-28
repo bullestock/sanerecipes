@@ -7,6 +7,7 @@ Ingredients
 - 1 garlic clove, smashed
 - 120 g unsalted creamy peanut butter
 - 60 g low-sodium soy sauce or tamari
+- 60 g water
 - 2 tablespoons Chinese black vinegar (or seasoned rice vinegar)
 - 1 teaspoon chili sauce such as sambal oelek or sriracha, plus more to taste
 - 2 tablespoons toasted sesame oil
