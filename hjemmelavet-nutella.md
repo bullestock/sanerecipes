@@ -6,7 +6,7 @@ Ingredienser
 - 50 g hasselnøddesmør
 - 50 g mørk chokolade
 - 50 g lys chokolade
-- 1 dl piskefløde
+- 1 dl (85 g) piskefløde
 - 40 g smør, stuetempereret
 - ½ tsk flagesalt
 
