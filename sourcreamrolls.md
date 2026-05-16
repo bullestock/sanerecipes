@@ -11,7 +11,7 @@ Ingredients
 - 140 g water
 - 500-575 g flour
 - 1 teaspoon salt
-- 2 eggs, lightly beaten
+- 1 egg, lightly beaten
 - 1 egg white, whisked until foamy
 
 Instructions 
