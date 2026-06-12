@@ -13,10 +13,8 @@ Ingredienser
 Fremgangsmåde
 =============
 
-Hak chokoladen fint og bland den med piskefløden. Opvarm det i
-mikrobølgeovnen under hyppig omrøring indtil blandingen er ensartet.
+Opvarm piskefløden til kogepunktet og tilsæt den hakkede chokolade. Rør rundt indtil blandingen er ensartet.
 
 Tilsæt smør og rør rundt indtil smørret er smeltet.
 
-Tilsæt hasselnøddesmør og flagesalt, fyld på glas og sæt det i
-køleskabet i 3 timer.
+Tilsæt hasselnøddesmør og flagesalt, fyld på glas og sæt det i køleskabet i 3 timer.
