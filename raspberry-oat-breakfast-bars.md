@@ -8,7 +8,7 @@ Ingredients
 - 100 g old-fashioned oats
 - ¼ teaspoon Salt
 - 100 g brown sugar
-- 1 large egg
+- 2 eggs
 - 100 g melted butter
 - 3 tablespoons milk
 - 225 g raspberries
